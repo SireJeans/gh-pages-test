@@ -1,3 +1,1 @@
-## Base de connaissance de JEAN LEPROLO 👍
-
-Ma base de connaissance.
+Bienvenu sur le site des prolos. Vous y trouverez une base de connaissance et un blog.
